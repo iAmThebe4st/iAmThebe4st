@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iAmThebe4st
+- 👋 Hi, @iAmThebe4st
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning everything 
 
